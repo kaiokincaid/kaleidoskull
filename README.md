@@ -1,2 +1,1 @@
-- I’m @kaleidoskull
-- I'm making random things !!
+girl this aint an about me
